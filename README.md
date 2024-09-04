@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on random stuff<br>👯 I’m looking to collaborate on fun projects<br>🤝 I’m looking for help with random stuff<br>🌱 I’m currently learning graphic design<br>💬 Ask me about anything if you need help!<br>⚡ Fun fact: i don't have any fun facts😭 im hella depressed tho<br><br>
+🔭 I’m currently working on random stuff<br>👯 I’m looking to collaborate on fun projects<br>🤝 I’m looking for help with random stuff<br>🌱 I’m currently learning graphic design<br>💬 Ask me about anything if you need help!<br>⚡ Fun fact: i don't have any fun facts😭<br><br>
 
 
 ## 🌐 Socials:
